@@ -19,7 +19,6 @@ y comunidades en línea.
 
 ### 📫 Cómo contactarme
 - Discord: **@RamboMortal**
-- Email: [tu.correo@email.com]
 - Sitio web: [https://akiostudio.com](https://discord.com/invite/sFdVjSfbtN)
 
 ### 😄 Pronombres
